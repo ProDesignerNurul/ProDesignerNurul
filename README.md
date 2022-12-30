@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **ReactJS**
 
-- 📫 How to reach me **maxnewsbd@gmail.com**
+- 📫 How to reach me **nurulamin8bp@gmail.com**
 
 - ⚡ Fun fact **I Think I Am Funny**
 
